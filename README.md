@@ -1,2 +1,2 @@
-Porciacaso no funciona el video esta aqui montado en onedrive
+Porsiacaso no funciona el video esta aqui montado en onedrive
 https://correoitmedu-my.sharepoint.com/:v:/g/personal/alanarias321704_correo_itm_edu_co/EVQoyGuq59JNklGD6nwz5esBbJwLFA0WhccV6lvS5UgulA?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=hg3PeA
